@@ -1,4 +1,5 @@
 Hobbies: Going outdoors, watching movies, reading books, and playing video games.
+My favorite video game of all time is Dota (Defense of the ancients). 
 I also love to hang out with my kitty and girlfriend whenever I can :).
 
 Program Background:
